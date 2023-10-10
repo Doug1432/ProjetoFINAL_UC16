@@ -16,27 +16,3 @@
 <br>Tela Innovation</br>
 ![45c79a10-0988-40f4-94da-ff39078d0870](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/28cd054d-6843-440c-bae7-1e59c03faacb)
 
-
-![MicrosoftTeams-image (1)](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/822ec28a-a913-4e79-9b8c-aff6b6f7e811)
-
-
-![MicrosoftTeams-image (2)](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/04ade801-cd03-4cf3-b949-1ff27f47cbd5)
-
-
-![MicrosoftTeams-image (3)](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/82525a9d-6b75-43a6-b90a-94b029970cd3)
-
-
-![MicrosoftTeams-image (4)](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/6cc29e63-54ee-4c74-a3dc-f8c35bb618d0)
-
-
-![MicrosoftTeams-image (5)](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/f62bc1a9-9eb6-4d88-93e2-d12c8e6a3c16)
-
-
-![MicrosoftTeams-image (6)](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/ec474772-8f90-4fa7-a2bf-4539ccb1e4b3)
-
-
-
-![MicrosoftTeams-image (7)](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/a3b966e7-49b1-4539-a959-d6f95df1936f)
-
-
-![MicrosoftTeams-image (8)](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/d05b836e-f262-477c-8a48-ef7f8651cb1c)
