@@ -35,6 +35,7 @@ Tela Innovation
 ![MicrosoftTeams-image (6)](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/ec474772-8f90-4fa7-a2bf-4539ccb1e4b3)
 
 
+
 ![MicrosoftTeams-image (7)](https://github.com/Doug1432/ProjetoFINAL_UC16/assets/104845797/a3b966e7-49b1-4539-a959-d6f95df1936f)
 
 
